@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @srakey
-- 👀 I’m interested in Jesus and money
+- 👀 I’m interested crypto 
 - 🌱 I’m currently learning abouty web3
 - 💞️ I’m looking to collaborate on writting and traslation
 - 📫 How to reach me here
